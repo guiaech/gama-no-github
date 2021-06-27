@@ -1,0 +1,1 @@
+Estou até agora sem acreditar o tamanho da oportunidade, estou conseguindo ver em dois dias o que não vi 6 meses de faculdade, pois aqui estou aprendendo a pratica. Estou amando aprender de fato como usar as ferramentas e todo o metodo de ensino. 
